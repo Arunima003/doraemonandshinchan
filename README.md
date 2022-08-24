@@ -1,2 +1,2 @@
 # doraemonandshinchan
-shinchan is better than doraemon.
+doraemon is better than shinchan.
