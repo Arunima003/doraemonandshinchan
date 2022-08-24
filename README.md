@@ -1,2 +1,2 @@
 # doraemonandshinchan
-this is random.
+shinchan is better than doraemon.
